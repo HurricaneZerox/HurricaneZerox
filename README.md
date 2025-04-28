@@ -1,6 +1,4 @@
-Female - She/Her - Australia
-
-COG IN THE MACHINE
+She/Her - Australia
 
 **6 Years Roblox Game Dev Experience**<br>
 **3 Years Unity Experience**
